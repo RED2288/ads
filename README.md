@@ -1,1 +1,1 @@
-## Thenk you
+## Thank you
